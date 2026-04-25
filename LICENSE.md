@@ -1,4 +1,4 @@
-
+advanced Scripts for hooked offers the most advanced hooked Script, with anti-ban and esp. Perfect for dominating any match.
 
 
 
